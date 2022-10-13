@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @tradeitdamn
 - 👀 I’m interested in copying files
-- 🌱 I’m currently learn cooking
+- 🌱 I’m currently do nothing
 - 💞️ I’m looking for food
 - 📫 Catch me if you can
 
